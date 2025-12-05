@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @joecocio
-- 👀 I’m interested in home networking/cryptomining/blockchainstuff
+- 👀 I’m interested in 
 - 🌱 I’m currently learning as much as i can
 
 
